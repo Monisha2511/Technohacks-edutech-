@@ -1,1 +1,1 @@
-# Technohacks-edutech-
+# Technohacks-internship certificate
